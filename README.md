@@ -16,6 +16,7 @@
 
 <br>
 
+<img src="work.gif" />
 
 ## 🚀 Tecnologias/Tecnologies
 
