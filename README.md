@@ -16,7 +16,7 @@
 
 <br>
 
-<img src="work.gif" />
+https://hnet.com/video-to-gif/viewimage/20210325-16-slxwPRHXajyjhxGz-7vEwL4-HNET
 
 ## 🚀 Tecnologias/Tecnologies
 
